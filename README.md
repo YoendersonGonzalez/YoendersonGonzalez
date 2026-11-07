@@ -49,7 +49,7 @@ Siempre busco **mejorar mis habilidades** y colaborar en **proyectos innovadores
  📫 Cómo contactarme
 📧 **Correo:** yoenderson15gm@gmail.com  
 💼 **LinkedIn:** [https://linkedin.com/in/yoenderson-gonzalezz](https://www.linkedin.com/in/yoenderson-gonzalezz/)  
-🌐 **Portafolio:** [https://tu-sitio-web.com] https://quillabit.xo.je/)
+🌐 **Portafolio:** [ https://quillabit.xo.je/]
 
 ---
 
